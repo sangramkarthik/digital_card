@@ -1,1 +1,1 @@
-# @sangramkarthik's digital card
+# @sangramkarthik's Digital Card
